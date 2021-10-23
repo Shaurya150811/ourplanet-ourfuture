@@ -1,1 +1,1 @@
-# ourplanet-ourfuture
+# Design-thinking-blog-exercise
